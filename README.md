@@ -27,8 +27,8 @@ We go beyond just delivering a service. At UniverseIT, we foster **long-term par
 We’re proud to be an **LGBTQIAA++ friendly company**. At UniverseIT, everyone is welcome, and we embrace diversity with open hearts. It’s part of our mission to create a supportive and empowering workplace for everyone. **Road to becoming the best SME employer!** 😄
 
 ## 📫 How to Reach Us
-- Website: [vertexit.eu](https://vertexit.eu)
-- Email: info@vertexit.eu
+- Website: [vrxt.eu](https://vrxt.eu)
+- Email: hello@vrxt.eu
 - Phone: +49 4321 78370 60
 
 ## 😄 Pronouns
