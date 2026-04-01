@@ -32,7 +32,7 @@ We’re proud to be an **LGBTQIAA++ friendly company**. At UniverseIT, everyone 
 - Phone: +49 4321 53999 30
 
 ##  Pronouns
-- He/Him, She/Her, They/Them – We’re an inclusive team, and everyone’s identity is respected.
+- He/Him, She/Her, They/Them - We’re an inclusive team, and everyone’s identity is respected.
 
 ##  Fun fact
 We're not just your typical IT company. We're on a mission to change the future of technology one client at a time. Come join us on this exciting journey!
